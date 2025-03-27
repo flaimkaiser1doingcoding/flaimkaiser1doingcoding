@@ -12,7 +12,7 @@
 - 📫 How to reach me **thisisanuransaha@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
-<p align="left">
+<p align="left">https://media1.tenor.com/m/cm-dS4ipBUMAAAAC/grok-chatgpt.gif
 </p>
 
 <h3 align="left">Languages and Tools:</h3>
